@@ -1,1 +1,1 @@
-![](https://readme-typing-svg.demolab.com?font=JetBrains+Mono+NL&pause=1000&color=FFFFFF&random=false&width=435&separator=%3C&lines=purified.dev+%3D+true;%3Cpurified.langs+%3D+CPP+%7C+ASM+%7C+GO;%3Cpurified.age+%3D+*(int*)nullptr;%3Cg_pMe+%3D+%26purified;)
+kys kzxv
