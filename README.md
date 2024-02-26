@@ -1,1 +1,1 @@
-![](https://github.com/dompurified/dompurified/blob/main/fr.gif?raw=true)
+![](https://github.com/dompurified/dompurified/blob/main/idk.gif?raw=true)
